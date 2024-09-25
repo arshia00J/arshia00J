@@ -1,6 +1,3 @@
-👨‍💻 **Computer engineering student teacher** passionate about technology, particularly **artificial intelligence**. 🤖 Childhood curiosity led me to explore computers through trial and error and comprehensive courses. 🚀 Developed a strong interest in AI, focusing on **image processing** and **deep learning**. 💡 Equipped with robust teaching abilities and problem-solving skills, refined through experience in non-profit schools. 🎓 **Aspiring educator** with teaching at the forefront of my career goals.
-
-#AI #DeepLearning #ComputerEngineering #ComputerVision 🌟
 
 
 
